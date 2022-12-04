@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1NyEhDGOnw2-6LTFHg58y1yosrK6ETeno/view?usp=share_link](https://drive.google.com/file/d/1NyEhDGOnw2-6LTFHg58y1yosrK6ETeno/view?usp=share_link)
 
-- ⚡ Fun fact **I am funny!**
+- ⚡ Fun fact **In my free time I love riding bike & Travelling new places.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
